@@ -8,6 +8,6 @@
 
 
 
-
+In Red, are the schools that qualify to be upgraded according to School Eduacation Department Rules
 
 
